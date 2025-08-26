@@ -1,11 +1,11 @@
 ## Hi there 👋
 
-<h1><a href="https://lesson-2.guru">CLICK TO PLAY GAME</h1>
+<h1><a href="https://k12guru.nl">CLICK TO PLAY GAME</h1>
 <HR>---
-<H1><a href="https://mathtest-99.help">CLICK 2 PLAY UNB GAMES</a></H1>
+<H1><a href="https://lessonhub.guru">CLICK 2 PLAY UNB GAMES</a></H1>
 <HR>---
 
-<a href="https://mathtest-99.help"><img src="https://1lesson1.email/gamez.png"></a>
+<a href="https://k12guru.nl"><img src="https://1lesson1.email/gamez.png"></a>
 
 # Unblocked Games 76: A Gateway to Online Gaming Freedom
 
